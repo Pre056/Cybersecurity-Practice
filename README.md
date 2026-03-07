@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Precious Olamide Adedokun
 
-IT Support/Helpdesk Technician | Systems & Network Enthusiast 
+Technical Support Analyst
 
 ---
 
