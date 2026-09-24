@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Precious Olamide Adedokun
 
-Technical Support Analyst
+Entry-level cybersecurity Analyst
 
 ---
 
